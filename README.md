@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **satishsaraskar@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1kFUidpyLfi2dRszGJAcZN281KuDP6-4X/view?usp=sharing](https://drive.google.com/file/d/1kFUidpyLfi2dRszGJAcZN281KuDP6-4X/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1YTOvRQhdSaTj-U4QxvRaNf0wIv4dt2AJ/view?usp=share_link](https://drive.google.com/file/d/1YTOvRQhdSaTj-U4QxvRaNf0wIv4dt2AJ/view?usp=share_link)
 
 
 <h3 align="left">Connect with me:</h3>
